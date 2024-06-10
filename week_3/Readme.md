@@ -27,4 +27,4 @@ With the stuff for me to complete school we breifly talked about the stuff I nee
 In regards to booking a shadow day we talked about whaty day, what We are planning on doing and what I can attend, which turns out I can attend a lecture for master degree students about developing apps, I can't wait and I have booke din the date the 13th of June
 
 
-[![back to main](https://raw.githubusercontent.com/Squidly1408/Journals-Term-1-2024/main/Back%20to%20Main.png)](https://github.com/Squidly1408/Journals-Term-1-2024/blob/main/Readme.md)
+[![back to main](https://raw.githubusercontent.com/Squidly1408/Journals-Term-2-2024/main/Back%20to%20Main.png)](https://github.com/Squidly1408/Journals-Term-2-2024/blob/main/Readme.md)

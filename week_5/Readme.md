@@ -16,4 +16,4 @@ I made it to what I call home however I was loosing the battles and soon the pai
 
 Even now, I am still fighting the pain, I am winning but even now they are reluctant to surrender, so, I am going to eradicate them all until the pain are no more.
 
-[![back to main](https://raw.githubusercontent.com/Squidly1408/Journals-Term-1-2024/main/Back%20to%20Main.png)](https://github.com/Squidly1408/Journals-Term-1-2024/blob/main/Readme.md)
+[![back to main](https://raw.githubusercontent.com/Squidly1408/Journals-Term-2-2024/main/Back%20to%20Main.png)](https://github.com/Squidly1408/Journals-Term-2-2024/blob/main/Readme.md)
