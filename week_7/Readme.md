@@ -5,9 +5,9 @@
 - create exhibition slideshow / panel pack
 - get ready for my exhibition on monday
 
-# LTI - Wednesday Journal
-##morning notes
-I have arrived at LTI in hopes that today i can sign the paperwork allowing me to work at SAPHI as a casual employee, this will hopefully allow me to come in a second day apart from LTI and allow me to learn and put me skills to practice in a real world enviroment. Can't wait!
+# LTI - UON Shadow Day review
+Today I went on a shadow day at UON, where I first met with my mentor at The Univeristy of Newcastle Dr Jacqualine Bailey. We soon went to a meeting where one of Jac's "phd sisters" were doing their PHD citation. It was very evident this was important to Peta the one conductiing the citation as this was her phd. She was very nervous about it rightfully. After we went to the citation meeting we dropped by a shop and got caramel slices. Then continued to the I3 labs where we picked up one of Jacs firends to hang out with us. after we got to the I3 labs I got to play some fruit ninja then play with some AR (augmentated reality). Then I got to play some beat saber afterwards. In the afternoon I went to a Lab for mobile development for student who are going for their masters. From there I went to the train station to go home. All up the day was very eventful and I very much enjoyed my time at UON.
+
 
 
 
