@@ -1,11 +1,13 @@
 ![Header](https://raw.githubusercontent.com/Squidly1408/Journals-Term-1-2024/main/title.png
 )
 # Todo for this week - Monday Journal
- - EPMATH153
- - get access to my UON account again 
- - send out invites
+- SAPHI
+- Exhibitions
+
 # LTI Journal - Wednesday Journal
-I went to a new possible LTI at UON, creating a podcast about aboriginal history and newcastle, This first session was about getting to know each other and understanding whats in the podcast and what will be reqiured of us. I sadly don't think this podcast thing is for me, i believe I won't be of any help and will only drag things down.
+## Morning journal
+I arrived at SAPHI early to find out that Liam was already here, so, I went in and said hi! He told me that when Cam comes in hes going to set me to do some tasks, I have feeling that it is goig to be the AI image recognition training data stuff again, although i am a little sad about it not being a exciting task I am happy that I can contribute to a real world project.
+
 
 # Journal Task - Friday Journal
 
